@@ -1,2 +1,2 @@
 # papukado
-god is 1
+going for a jog now
